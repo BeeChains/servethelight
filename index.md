@@ -1,4 +1,7 @@
 ## SERVE THE LIGHT!!!
+
+(47) Jesus said, "It is impossible for a man to mount two horses or to stretch two bows. And it is impossible for a servant to serve two masters; [Gospel Of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
+
 The SOURCE-WITHIN You... keep your INNER PEACE, but DEFEND THE SACRED!
 
 - [Inner I Net Company/](https://innerinetcompany.carrd.co/)
