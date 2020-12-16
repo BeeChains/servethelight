@@ -1,6 +1,9 @@
 ## SERVE THE LIGHT!!!
 
-(47) Jesus said, "It is impossible for a man to mount two horses or to stretch two bows. And it is impossible for a servant to serve two masters; [Gospel Of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
+- (47) Jesus said, "It is impossible for a man to mount two horses or to stretch two bows. And it is impossible for a servant to serve two masters; 
+
+- (50) Jesus said, "If they say to you, 'Where did you come from?', say to them, 'We came from the light, the place where the light came into being on its own accord and established itself and became manifest through their image.' If they say to you, 'Is it you?', say, 'We are its children, we are the elect of the living father.' If they ask you, 'What is the sign of your father in you?', say to them, 'It is movement and repose.'"
+[Gospel Of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
 
 The SOURCE-WITHIN You... keep your INNER PEACE, but DEFEND THE SACRED!
 
