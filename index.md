@@ -9,6 +9,7 @@ The SOURCE-WITHIN You... keep your INNER PEACE, but DEFEND THE SACRED!
 
 - [Inner I Net Company/](https://innerinetcompany.carrd.co/)
 - [Inner I Net Company/](https://innerinetcompany.webflow.io/)
+- [SACRED ESSENCE](http://inner.sacredessence.hns.to/)
 
 "Put on God’s armor so that you can make a stand against the tricks of the devil. 12 We aren’t fighting against human enemies but against rulers, authorities, forces of cosmic darkness, and spiritual powers of evil in the heavens. 13 Therefore, pick up the full armor of God so that you can stand your ground on the evil day and after you have done everything possible to still stand. 14 So stand with the belt of truth around your waist, justice as your breastplate, 15 and put shoes on your feet so that you are ready to spread the good news of peace. 16 Above all, carry the shield of faith so that you can extinguish the flaming arrows of the evil one. 17 Take the helmet of salvation and the sword of the Spirit, which is God’s word. 18 Offer prayers and petitions in the Spirit all the time. Stay alert by hanging in there and praying for all believers.” [Ephesians 6:10-18 CEB]
 
