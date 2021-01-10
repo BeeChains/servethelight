@@ -1,4 +1,7 @@
-## SERVE THE LIGHT!!!
+## SERVE THE LIGHT | CHRIST CONSCIOUSNESS , Handshake(HNS) domains
+
+# [Christ Consciousness](http://christconsciousness.hns.to/)
+
 
 - (47) Jesus said, "It is impossible for a man to mount two horses or to stretch two bows. And it is impossible for a servant to serve two masters; [Gospel Of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
 
