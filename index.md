@@ -14,8 +14,7 @@
 
 Source ~[The Creed](https://assassinscreed.fandom.com/wiki/The_Creed)
 
-"Egypt has fallen, Greece also, and Rome will fall too. All will fall to the creed, yet no one will know."
-―Bayek
+## "Egypt has fallen, Greece also, and Rome will fall too. All will fall to the creed, yet no one will know." ―Bayek ([The Creed](https://assassinscreed.fandom.com/wiki/The_Creed))
 
 # [Initiation](https://assassinscreed.fandom.com/wiki/Initiation_into_the_Assassin_Order)
 Assassin: "Where other men blindly follow the truth, remember..."
