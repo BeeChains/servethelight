@@ -1,4 +1,33 @@
 ## SERVE THE LIGHT | CHRIST CONSCIOUSNESS , Handshake(HNS) domains
+"Who are the ones that work in the shadows for the people? We are. Something has come of all of this. And it starts right now. We must continue the fight, and defend the free will of the people. And no matter how small, our brotherhood is the only hope and our kingdom needs no crowns."
+―Bayek, 47 BCE.
+
+[Hidden Ones](https://assassinscreed.fandom.com/wiki/Hidden_Ones#Behind%20the%20scenes)
+<img src="https://static.wikia.nocookie.net/assassinscreed/images/7/79/ACO_logo.png/revision/latest?cb=20200509231847" alt="Hidden Ones" style="height: 369px; width:369px;"/>
+# "Nothing is true; everything is permitted"
+
+"To say that nothing is true, is to realize that the foundations of society are fragile, and that we must be the shepherds of our own civilization. To say that everything is permitted, is to understand that we are the architects of our actions, and that we must live with their consequences, whether glorious or tragic"
+
+- Stay your blade from the flesh of an innocent
+- Hide in plain sight
+- Never compromise the Brotherhood
+
+Source ~[The Creed](https://assassinscreed.fandom.com/wiki/The_Creed)
+
+"Egypt has fallen, Greece also, and Rome will fall too. All will fall to the creed, yet no one will know."
+―Bayek
+
+# [Initiation](https://assassinscreed.fandom.com/wiki/Initiation_into_the_Assassin_Order)
+Assassin: "Where other men blindly follow the truth, remember..."
+
+Initiate: "Nothing is true."
+
+Assassin: "Where other men are limited by morality or law, remember..."
+
+Initiate: "Everything is permitted."
+
+Assassin: "We work in the dark to serve the light. We are Assassins."
+
 
 # [Christ Consciousness](http://christconsciousness.hns.to/)
 
