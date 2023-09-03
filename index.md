@@ -1,6 +1,6 @@
 ## SERVE THE LIGHT | CHRIST CONSCIOUSNESS , Handshake(HNS) domains
 "Who are the ones that work in the shadows for the people? We are. Something has come of all of this. And it starts right now. We must continue the fight, and defend the free will of the people. And no matter how small, our brotherhood is the only hope and our kingdom needs no crowns."
-―Bayek, 47 BCE.
+―Bayek, 47 BCE. [source](https://assassinscreed.fandom.com/wiki/Hidden_Ones)
 
 [Hidden Ones](https://assassinscreed.fandom.com/wiki/Hidden_Ones#Behind%20the%20scenes)
 <img src="https://static.wikia.nocookie.net/assassinscreed/images/7/79/ACO_logo.png/revision/latest?cb=20200509231847" alt="Hidden Ones" style="height: 369px; width:369px;"/>
@@ -28,6 +28,7 @@ Initiate: "Everything is permitted."
 
 Assassin: "We work in the dark to serve the light. We are Assassins."
 
+## "You've your tools and training. Your targets and goals. And now you have your title. Welcome to the Brotherhood, Connor."―Achilles Davenport, 1773 [source](https://assassinscreed.fandom.com/wiki/Initiation_into_the_Assassin_Order)
 
 # [Christ Consciousness](http://christconsciousness.hns.to/)
 
